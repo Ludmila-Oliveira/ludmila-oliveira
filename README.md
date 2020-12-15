@@ -1,4 +1,4 @@
-### Olá pessoas, sejam bem-vindos! &#128512;
+### Hello people, welcome to my profile! &#128512;
 
 <!--
 **Ludmila-Oliveira/ludmila-oliveira** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile. -->
