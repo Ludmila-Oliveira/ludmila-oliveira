@@ -9,6 +9,6 @@
 
 #### Know more about me
 
-[Linkedin](www.linkedin.com/in/ludmila-p-oliveira) | [Netlify](https://app.netlify.com/teams/ludsh220/overview) | [linktree](linktr.ee/ludmila_p_oliveira)
+[Linkedin](www.linkedin.com/in/ludmila-p-oliveira) | [Netlify](https://app.netlify.com/teams/ludsh220/overview) | [Linktree](linktr.ee/ludmila_p_oliveira)
 
 
